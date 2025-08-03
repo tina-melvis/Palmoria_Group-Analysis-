@@ -35,7 +35,7 @@ RECOMMENDATIONS
 
 Emergency salary review for regulatory compliance
 
-Target pay equity fixes in 3 specific departments
+Target pay equity fixes in Resources ,Business development and Services departments
 
 Improve performance management system
 
